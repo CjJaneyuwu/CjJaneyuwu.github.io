@@ -14,7 +14,7 @@ This is one of my most favorite Manga
 
 ---
 
-My favorite Music
+One of my favorite music
 
 https://youtu.be/lBOoZC3d5o4
 
