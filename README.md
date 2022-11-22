@@ -16,8 +16,7 @@ This is one of my most favorite Manga
 
 One of my favorite music
 
-https://youtu.be/lBOoZC3d5o4
-
+https://youtu.be/lBOoZC3d5o4]
 
 |Monday|Tuesday|Wednesday|Thursday|Friday|
 |------|-------|---------|--------|-------|
