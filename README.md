@@ -29,7 +29,8 @@ One of my favorite music
 |------|-------|---------|--------|-------|
 |Clean|Homework|Study|Help|School|
 
-That is so cool! :cool:
+**I like looking at beautiful views!**
+
 
 ![image](https://user-images.githubusercontent.com/118236782/202055720-e7aeb0a4-ac36-4f5c-a284-1dad3f2d5183.png)
 
@@ -37,7 +38,7 @@ That is so cool! :cool:
 ---
 <img src="https://user-images.githubusercontent.com/118236782/203457187-f457145f-4606-4b5e-aa0c-e4c69295a94c.png" width="1200">
 
-**The view is so cool!** <br>
+**These views are so cool!** <br>
 **Am I right?**
 
 ---
