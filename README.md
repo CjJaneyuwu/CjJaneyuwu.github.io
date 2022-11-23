@@ -38,8 +38,10 @@ Two (2) of my favorite musics
 
 ![image](https://user-images.githubusercontent.com/118236782/202055720-e7aeb0a4-ac36-4f5c-a284-1dad3f2d5183.png)
 
-**That is so beautiful!** :joy:
 ---
+
+**That is so beautiful!** :joy:
+
 <img src="https://user-images.githubusercontent.com/118236782/203457187-f457145f-4606-4b5e-aa0c-e4c69295a94c.png" width="1200">
 
 **These views are so cool!** <br>
