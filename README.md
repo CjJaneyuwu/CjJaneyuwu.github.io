@@ -3,10 +3,11 @@
 ---
 
 **My Favorite stuffs:**
-- Ice cream
+- Eating Ice cream
+- Drinking milktea and Iced tea
 - Watching Anime and K-drama
 - Studying
-- Reading Manga
+- Reading Manga and Comics
 - Playing Online and Offline games
 - Listening to Music
 
