@@ -53,3 +53,11 @@ Two (2) of my favorite musics
 ![image](https://user-images.githubusercontent.com/118236782/203459312-2c124cd6-a394-4c63-84c8-68e9ee2bb0db.png)
 
 ---
+
+Do you know what os the longest word in English?
+
+You can do it Think!
+
+![image](https://user-images.githubusercontent.com/118236782/203460861-77cf6fba-615a-40b3-8f2e-f446838b15ce.png)
+
+If no, this is the longest word in English **Pneumonoultramicroscopicsilicovolcanoconiosis**
