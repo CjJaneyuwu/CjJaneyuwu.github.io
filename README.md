@@ -2,7 +2,7 @@
 
 ---
 
-**My Favorite stuff**
+**My Favorite stuffs:**
 - Ice cream
 - Watching Anime and K-drama
 - Studying
