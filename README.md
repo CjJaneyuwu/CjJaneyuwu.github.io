@@ -35,3 +35,9 @@ That is so cool! :cool:
 
 **That is so beautiful!** :joy:
 ---
+<img src="https://user-images.githubusercontent.com/118236782/203457187-f457145f-4606-4b5e-aa0c-e4c69295a94c.png" width="1200">
+
+**The view is so cool!** <br>
+**Am I right?**
+
+---
